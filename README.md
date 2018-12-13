@@ -1,3 +1,0 @@
-#orangi
-
-sakasita
